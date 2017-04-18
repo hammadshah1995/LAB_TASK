@@ -1,4 +1,4 @@
-# Aisha Sultan Awan
+# Aisha Sultan
 FA14-BSE-010
 Softwae Engineer Student
 6th Semester
